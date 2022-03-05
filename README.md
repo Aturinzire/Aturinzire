@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Aturinzire Norman 
+- 👀 I’m interested in learning coding
